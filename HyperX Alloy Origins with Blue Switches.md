@@ -9,8 +9,7 @@ https://www.ptt.cc/bbs/Key_Mou_Pad/M.1606187976.A.6AD.html
 
 於是
 出現了這個~~
-![](https://i.imgur.com/ZrgJOuk.jpg)
-!!!HyperX Alloy Origins 藍軸!!!
+![](https://i.imgur.com/ZrgJOuk.jpg)!!!HyperX Alloy Origins 藍軸!!!
 
 好~廢話不多說
 就來開箱這個鍵盤吧
@@ -70,9 +69,9 @@ Wait... 殘體字 小差評兒
 不過我個人是喜歡純英刻 比較簡潔
 
 
-![](https://i.imgur.com/uP4X6lz.jpg)
-![](https://i.imgur.com/rDDRWJ8.jpg)
+![](https://i.imgur.com/uP4X6lz.jpg)![](https://i.imgur.com/rDDRWJ8.jpg)
 附上兩張比較近拍的照片
+
 
 
 ![](https://i.imgur.com/H7prCxh.jpg)
@@ -141,7 +140,7 @@ Windows用戶進入Microsoft Store後
 
 ![](https://i.imgur.com/7yWWA07.jpg)
 而燈效的波浪角度也可以自己調整
-0~360度都可以設定
+0~360度都可以設
 我目前使用時設定30度
 這樣燈效的波浪看起來比較不會這麼呆版的從左到右而已
 
@@ -170,23 +169,22 @@ Windows用戶進入Microsoft Store後
 整體很穩重摸起來也很舒服
 由於之前慣用Tactile的軸體
 剛開始用這把鍵盤時
-有點受不了它那清脆的敲擊聲
-但也慢慢習慣了
+有點受不了它那清脆的敲擊聲但也慢慢習慣了
 HyperX的自有軸不晃
+
 打感很紮實
 敲起來是真的爽快
 按下去的喀喀聲效果
 好像打字速度更快了一樣
-燈效目前使用基本的彩虹效果
-增加一點騷氣
+燈效目前使用基本的彩虹效果增加一點騷氣
 
 使用一週多到現在
 真的是一把打起來很舒服很爽快的鍵盤
 這篇文也是使用HyperX Alloy Origins藍軸完成
 推推!
 
-
 最後附上一段打字的影片
+
 https://streamable.com/z2tebu
 
 

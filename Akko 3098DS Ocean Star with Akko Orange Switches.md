@@ -83,6 +83,7 @@ type C線*1
 ![](https://i.imgur.com/Dmt9zgv.jpg)
 Akko橙軸
 打感類似茶軸 屬於無聲段落軸
+
 P.S. 原本是沒有led的
 
 ![](https://i.imgur.com/TDaZJi3.jpg)
