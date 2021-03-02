@@ -1,7 +1,7 @@
 # Akko 3098DS Ocean Star with Akko Orange Switches
 
 網頁好讀版:
-![](https://www.ptt.cc/bbs/Key_Mou_Pad/M.1612945386.A.012.html)
+https://www.ptt.cc/bbs/Key_Mou_Pad/M.1612945386.A.012.html
 
 今天來開箱一波AKKO的3098DS
 980或1800配置的鍵盤有80%鍵盤的寬度以及100%鍵盤的實用性

@@ -1,6 +1,7 @@
 # HyperX Alloy Origins with Blue Switches
 
-網頁好讀版:https://www.ptt.cc/bbs/Key_Mou_Pad/M.1606187976.A.6AD.html
+網頁好讀版:
+https://www.ptt.cc/bbs/Key_Mou_Pad/M.1606187976.A.6AD.html
 
 那是個月黑風高的夜晚
 我被幸運貓貓造訪
